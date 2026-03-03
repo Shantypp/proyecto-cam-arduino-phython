@@ -74,3 +74,7 @@ El uso de IA permitió mejorar el aprendizaje y comprender mejor cada parte del 
 ## Realizado por
 
 Santiago Pachon
+
+Evidencias de video funcionamiento 
+
+https://youtube.com/shorts/69q73F97DkQ?feature=share 
